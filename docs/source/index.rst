@@ -1,4 +1,4 @@
-CEO Louis Vương – Chuyên gia về game bài đổi thưởng - go88gb.com
+Go88 GB – Link vào Cổng Game go88.com chính thức 2024 - go88gb.com
 ===================================
 
 `Go88 <https://go88gb.com/>`_ là huyền thoại game đổi thưởng trực tuyến số 1 tại Việt Nam năm 2024. Được thành lập vào ngày 08/08/2008 tại Việt Nam, Go88 nổi bật với các trò chơi như Game bài đổi thưởng, Tài Xỉu online, Nổ Hũ online, Bắn Cá online, và hơn 888 sản phẩm game đổi thưởng khác. 
